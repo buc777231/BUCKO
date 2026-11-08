@@ -1,1 +1,1 @@
-# BUCKO
+kde mám svoje konto# BUCKO
